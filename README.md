@@ -1,2 +1,2 @@
 # deneme
-ilk proje
+:) :) :)
